@@ -1,2 +1,0 @@
-# JoF
-Idk man
